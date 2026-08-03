@@ -1,6 +1,6 @@
 +++
 date = '2026-08-03T17:21:10-03:00'
-draft = true
+draft = false
 title = 'É muita sorte!'
 +++
 
