@@ -1,0 +1,5 @@
+/* Justifica o texto dos posts no PaperMod */
+.post-content, .post-content p {
+    text-align: justify;
+    text-justify: inter-word;
+}
