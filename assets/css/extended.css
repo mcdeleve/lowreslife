@@ -1,5 +1,7 @@
-/* Justifica o texto dos posts no PaperMod */
-.post-content, .post-content p {
-    text-align: justify;
-    text-justify: inter-word;
+/* Força o texto justificado em todas as tags de parágrafo dentro dos posts do PaperMod */
+.post-content p, 
+.post-entry p, 
+.entry-content p {
+    text-align: justify !important;
+    text-justify: inter-word !important;
 }
