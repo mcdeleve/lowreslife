@@ -5,3 +5,10 @@
     text-align: justify !important;
     text-justify: inter-word !important;
 }
+
+mark {
+  background-color: #fff3cd; /* Amarelo suave para o modo claro */
+  color: #212529;            
+  padding: 0.1em 0.3em;
+  border-radius: 0.2em;
+}
