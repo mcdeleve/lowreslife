@@ -2,4 +2,7 @@ baseURL = 'https://github.com/mcdeleve/lowreslife'
 languageCode = 'pt-br'
 title = 'lowreslife'
 theme = 'papermod'
-
+[markup]
+  [markup.goldmark]
+    [markup.goldmark.renderer]
+      unsafe = true
