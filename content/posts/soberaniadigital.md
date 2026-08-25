@@ -34,3 +34,9 @@ Muitos vão argumentar de que é o _'progresso'_ e que não ha muito a se fazer.
 Progresso é entender que é possível sim fazer a substituição de sistemas transnacionais para municipais (ou estaduais/federais) e inclusive fazer mais gente ganhar com isso: passageiros com uma tarifa menor (e sem a dinamização safada), arrecadação maior por parte do município pra manutenção das ruas que os apps ajudaram a gastar e não ajudam com isso e pros motoristas que poderão ser amparados pelo ente público. 
 
 Ficar só na mão dos _tech bros_ é uma escolha _pouco esperta_ . E não aprender e projetar o futuro com o que já acontece em outros lugares é burrice. 
+
+## complemento
+
+Devemos pensar seriamente também na questão da substituição dos sistemas operacionais governamentais de softwares privativos (Windows) para de códigos aberto e adoção, implementação e pesquisa nos sistemas de IA senão locais, pelo menos adaptados às realidades locais com os modelos de código aberto que temos projetados por empresas chinesas. 
+
+De novo, ficar na mão de sistemas americanos, caros e fechados não é uma escolha inteligente à longo e médio prazos. 
