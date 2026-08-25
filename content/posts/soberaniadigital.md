@@ -35,7 +35,7 @@ Progresso é entender que é possível sim fazer a substituição de sistemas tr
 
 Ficar só na mão dos _tech bros_ é uma escolha _pouco esperta_ . E não aprender e projetar o futuro com o que já acontece em outros lugares é burrice. 
 
-## complemento
+### complemento
 
 Devemos pensar seriamente também na questão da substituição dos sistemas operacionais governamentais de softwares privativos (Windows) para de códigos aberto e adoção, implementação e pesquisa nos sistemas de IA senão locais, pelo menos adaptados às realidades locais com os modelos de código aberto que temos projetados por empresas chinesas. 
 
