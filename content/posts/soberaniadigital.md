@@ -16,7 +16,7 @@ Pra quem trabalha, também já foi muito vantajoso. Mas esse momento também pas
 
 Numa realidade de desemprego é melhor ter um subemprego. Mesmo que com isso você arque com todos os custos operacionais do negócio. A malícia entra quando você consegue fazer que esse trabalhador acredite que ele não trabalha pra empresa e sim por conta própria, o que é um engano. 
 
-Tá mas onde entra a soberania digital?
+### Tá mas onde entra a soberania digital?
 
 Esses apps já estão operando há mais de uma década. Apesar de boas estratégias de marketing, operacionalmente já deu tempo de aprender como ele funciona e opera, e, tecnologicamente, eles não mudou muito desde seu início, na segunda década do século XXI. Sendo assim, não tem nada em seu código que seja tão difícil ou complicado de ser replicado hoje em dia. So governos, locais e federais, caso quisessem, poderiam projetar ubers locais (municipais) par agrupar esses trabalhadores com preços de corridas mais competitivas, entrando receita para o município por corrida agendada, o que poderia trazer recursos pra manter a infraestrutura das estradas e ruas que, por conta da entrada massiva de carros pra essa finalidade, deterioram mais rapidamente que antes. 
 
