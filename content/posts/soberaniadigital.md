@@ -1,7 +1,7 @@
 +++
 date = '2026-08-25T05:25:28-03:00'
 draft = false
-title = 'Soberaniadigital'
+title = 'Soberania Digital'
 +++
 
 Depois de mais de uma década de _disrupção_ tecnológica (como os _tech bros_ gostam de dizer) é mais do  hora de buscar a tão aclamada soberania digital. 
