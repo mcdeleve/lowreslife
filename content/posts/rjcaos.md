@@ -5,37 +5,41 @@ title = 'Rjcaos'
 +++
 
 Na cidade do Rio de Janeiro, se seu celular quebrar você não pega o ônibus. 
+
 Na cidade do Rio de Janeiro, se seu celular quebrar você não pega o ônibus. 
+
 Na cidade do Rio de Janeiro, se seu celular quebrar você não pega o ônibus. 
+
 Na cidade do Rio de Janeiro, se seu celular quebrar você não pega o ônibus. 
+
 Na cidade do Rio de Janeiro, se seu celular quebrar você não pega o ônibus. 
+
 Na cidade do Rio de Janeiro, se seu celular quebrar você não pega o ônibus. 
+
 Na cidade do Rio de Janeiro, se seu celular quebrar você não pega o ônibus. 
+
 Na cidade do Rio de Janeiro, se seu celular quebrar você não pega o ônibus. 
+
 Na cidade do Rio de Janeiro, se seu celular quebrar você não pega o ônibus. 
+
 Na cidade do Rio de Janeiro, se seu celular quebrar você não pega o ônibus. 
+
 Na cidade do Rio de Janeiro, se seu celular quebrar você não pega o ônibus. 
+
 Na cidade do Rio de Janeiro, se seu celular quebrar você não pega o ônibus. 
+
 Na cidade do Rio de Janeiro, se seu celular quebrar você não pega o ônibus. 
+
 Na cidade do Rio de Janeiro, se seu celular quebrar você não pega o ônibus. 
+
 Na cidade do Rio de Janeiro, se seu celular quebrar você não pega o ônibus. 
+
 Na cidade do Rio de Janeiro, se seu celular quebrar você não pega o ônibus. 
+
 Na cidade do Rio de Janeiro, se seu celular quebrar você não pega o ônibus. 
+
 Na cidade do Rio de Janeiro, se seu celular quebrar você não pega o ônibus. 
+
 Na cidade do Rio de Janeiro, se seu celular quebrar você não pega o ônibus. 
-Na cidade do Rio de Janeiro, se seu celular quebrar você não pega o ônibus. 
-Na cidade do Rio de Janeiro, se seu celular quebrar você não pega o ônibus. 
-Na cidade do Rio de Janeiro, se seu celular quebrar você não pega o ônibus. 
-Na cidade do Rio de Janeiro, se seu celular quebrar você não pega o ônibus. 
-Na cidade do Rio de Janeiro, se seu celular quebrar você não pega o ônibus. 
-Na cidade do Rio de Janeiro, se seu celular quebrar você não pega o ônibus. 
-Na cidade do Rio de Janeiro, se seu celular quebrar você não pega o ônibus. 
-Na cidade do Rio de Janeiro, se seu celular quebrar você não pega o ônibus. 
-Na cidade do Rio de Janeiro, se seu celular quebrar você não pega o ônibus. 
-Na cidade do Rio de Janeiro, se seu celular quebrar você não pega o ônibus. 
-Na cidade do Rio de Janeiro, se seu celular quebrar você não pega o ônibus. 
-Na cidade do Rio de Janeiro, se seu celular quebrar você não pega o ônibus. 
-Na cidade do Rio de Janeiro, se seu celular quebrar você não pega o ônibus. 
-Na cidade do Rio de Janeiro, se seu celular quebrar você não pega o ônibus. 
-Na cidade do Rio de Janeiro, se seu celular quebrar você não pega o ônibus. 
+
 Era só isso mesmo. 
