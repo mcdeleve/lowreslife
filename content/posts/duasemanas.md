@@ -1,0 +1,17 @@
++++
+date = '2026-09-04T19:08:53-03:00'
+draft = false
+title = 'Duas Semanas, não aguento mais!'
++++
+
+
+Indo pra terceira semana meio doente/doente. 
+Pohha, que gripezinha safada. Começou com uma fraqueza no corpo seguido de coriza e uma dor de cabeça bem fraca e quase vinte dias depois já quase curou , depois voltou, depois piorou, a fraqueza aumentou, depois diminuiu, meus treinos ficaram todos incertos e em dias errados e eu tive que parar de fazer vídeo por que passei dias e edias me sentindo muito mal, mesmo trendo pensando em algo interessante pra fazer até chegar ontem e meu filho cair -enfim- com febre dessa gripe safada. 
+
+Fomos no médico e ninguém tirou sangue e/ou fez teste pra saber se é influenza, covid ou sei lá mais qual gripe que tá rolando nessa época do ano que deveria ser inverno mas o nosso super herói <mark> Super El Niño </mark> veio em 2026 e desarrumou tudo, acabando com o inverno e trazendo uma infestação de mosquitos nunca antes ~vista~ sentida pelas minhas canelas ao entardecer e de madrugada.
+
+Eu, que faço aniversário em agosto e estava acostumado com as comemorações com bolo de morango, fruta da época, e curtindo um pouco de frio - que não RJ nem é muito mesmo - tive que me contentar com uma semaninha de chuva mesmo assim sem frio. Fez ***frio*** uma semana e não mais que isso. E _frio_ de 21 graus. Eu particularmente nem considero frio mas os cariocas acham glacial e reclamam mais que a ~Vanessa Silva~ _"Negona do Bolsonaro"_ sendo expulsa da sede do PL em véspera de eleição.  Me dá agonia essa reclamação do carioca com 18 graus na rua. Parece que tem um metro e meio de neve nas ruas e muita dificuldade quando na verdade é so um fresquinho gostoso pra fugir do calor infernal que é todo verão. Inclusive esse verão vai ser de lascar, anota aí o que eu tô falando. Se no inverno já fez esse calor desgracento e ventos com mais de 70 km/h, no verçao não quero nem ver. Queria nem estar aqui pra ver mesmo, mas estarei sem muitas dúvidas. 
+
+Me arrumando pra levar meu filho no médico de novo em menos de uma semana. Provavelmente vão entrar com a pohha de um antibiótico. E lá irei eu acordar de madrugada durante os próximos 7 dias pra dar remédio de 8 em 8 horas. Haja ~paciência~ fôlego, na moral. Só tô esperando o remédio fazer efeito pra ele conseguir sair comigo sem estar caindo pelas tabelas, por que desde ontem ele tá caindo pelas tabelas de fraqueza, coitado. Ele é muito ativo, mas quando a febre bate, ele logo dá sinais de que não tá bem, dormindo muito mais do que o comum e com os olhos baixos. 
+
+Eu, particularmente, estou me sentido melhor até hoje. Espero continuar assim. Se eu piorar, já viu, como que vou cuidar dele se somos só nós? Não tem como. Preciso ficar firme. Espero ficar firme. Essa semana eu fiz uma filmagem na cachoeira pegando água gelada no que chamamos carinhosa e poeticamente de <mark> tudo pela arte! </mark> e por sorte não deu nada não.  Não fiquei mal, tampouco fiquei melhor depois do contato com a natureza e água límpida da cachucomo costumam acreditar os "_mais espiritualizados"_. Longe de ser tão hareboo, acredito que esse ambiente é curativo, mas mais na esfera mental do que na esfera biológica/vírus-bacteriana. Mentalmente foi ótimo, fisicamente talvez ter ficado na cama poderia ter sido mais confortável e respeitado mais meu corpo, mas não só a cachoeira como a companhia dos rapazes do Braza, Ari e Play fez a minha tarde muito mais aprazível. 
