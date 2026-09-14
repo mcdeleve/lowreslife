@@ -1,7 +1,7 @@
 +++
 date = '2026-09-14T06:23:23-03:00'
 draft = false
-title = 'Saiforagripe'
+title = 'Cidade Nova (śeculo XXI)'
 +++
 
 Sim. Depois de três semanas (quase três) com uma pohha de gripe que não me largava, parece que tô melhor da gripe. Só a catarreira não me largou até hoje. Ela quer uma relação de longa duração mas eu tô fugindo dela. Ghosting não resolveu. Ela continua mandando mensagens nada subliminares que atingem a notificação do meu pulmão e me lembram que ela ainda não foi de todo. Pelo menos minha voz voltou ao normal. Até arrisquei voltar a fazer uns vídeos novos pro instagram. Poucos, mas pretendo voltar essa semana. 
