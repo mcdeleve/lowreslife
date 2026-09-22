@@ -1,7 +1,7 @@
 +++
 date = '2026-09-21T05:02:30-03:00'
 draft = false
-title = 'Fim de Semana ~no parque~'
+title = 'Fim de Semana foi de altos e baixos, mas ainda assim ÓTIMO!'
 +++
 
 Depois de passar a semana inteira -24/7- com meu filho, no fim de semana me dá um cansaço e uma preguiça brutal de buscar novas programações no fim de semana, mesmo que seja de lazer. 
