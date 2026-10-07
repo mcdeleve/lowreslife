@@ -1,7 +1,7 @@
 +++
 date = '2026-10-06T05:37:44-03:00'
-draft = true
-title = 'Segredo'
+draft = false
+title = 'Vou te contar um segredo'
 +++
 
 Eu não saí contando pra todo mundo mas pra você que me lê aqui eu vou contar. 
