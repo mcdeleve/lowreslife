@@ -131,7 +131,7 @@ Depois do debate eu fui com Romã pro Heavy baile, festa de funk na praça XV do
 
 Sim, a caixa de pandora nem se abriu mas os bracinhos já estavam se esgueirando pelas brechas. Espero que a caixa não seja aberta por completo nesse domingo.
 
-Eu tô terminando esse texto hoje, domingo, e o dia começou chovendo, assim como na outra eleição que relatei no texto do primeiro turno (https://mcdeleve.github.io/lowreslife/posts/chovemuito/). 
+Eu tô terminando esse texto hoje, domingo, e o dia começou chovendo, assim como na outra eleição que relatei [no texto do primeiro turno](https://mcdeleve.github.io/lowreslife/posts/chovemuito/). 
 
 Naquele dia não foi um bom presságio. Flávio ganhou por uma pequena margem*. 
 
