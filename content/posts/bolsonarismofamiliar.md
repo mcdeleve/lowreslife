@@ -18,7 +18,8 @@ Mas mesmo não tendo conversado nem um segundo com ele sobre as eleições desse
 
 ### Contexto:
 
-Minha irmã estava, como toda pessoa sã e consciente, fazendo campanha online pro Lula e achou que seria uma boa idéia mandar um link pra ele sobre o assunto para _alertá-lo_ sobre os perigos de ter o bandido flávio na presidência. Daí meu irmão, que sempre foi católico e hoje é evangélico e bolsonarista, escolheu o _Deus, pátria_ e brigou com a própria família. Coisa de maluco. Coisa de seita. 
+Minha irmã estava, como toda pessoa sã e consciente, fazendo campanha online pro Lula e achou que seria uma boa idéia mandar um link pra ele sobre o assunto para _alertá-lo_ sobre os perigos de ter o bandido flávio na presidência. Daí meu irmão, que sempre foi católico e hoje é evangélico e bolsonarista, escolheu o _Deus, pátria_ e brigou com a própria família. Coisa de maluco. Coisa de seita. Mas disse pra minha irmã que era invasivo ainda mais sabendo a inclinação política dele e que ela mandou mal em mandar coisa de Lula pra ele. Eu não faria. 
+##### fim do contexto 
 
 Eu disse a ela quando me ligou pra que se acalmasse, que não adiantava tentar _abrir a cabeça_ de um cabeça dura e que realmente se ela já sabia da inclinação dele que não tinha sido uma boa ideia ter mandado qualquer link sobre isso pra ele. 
 
@@ -30,4 +31,4 @@ Acredito que ele devia rir das minhas postagens, achando que eu era um perdedor 
 
 Eis que o jogo virou, ele perdeu, a mamata continuou - risos - , o candidato bandido dele, envolvido em merda até o pescoço fugiu do pais pra não ser preso como seu pai e todos sabemos quem é o ladrão. 
 
-Ele continua aqui nos meus stories vendo tudo o que posto. E eu continuo aqui querendo muito saber o que passa naquela cabecinha oca. 
+Ele continua aqui nos meus stories vendo tudo o que posto. E eu continuo aqui querendo muito saber o que passa naquela cabecinha. 
