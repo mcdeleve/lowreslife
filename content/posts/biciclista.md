@@ -3,6 +3,9 @@ date = '2026-08-17T07:52:26-03:00'
 draft = false
 title = 'Bicicleta e Canto do Rio, memórias'
 +++
+
+![bike](https://static2.klipy.com/ii/f87f46a2c5aeaeed4c68910815f73eaf/d0/3e/vVvJ2lmD.gif)
+
 Eu sou um <mark>biciclista inveterado. </mark>
 
 Lembro que meu pai me ensinou a andar de bicicleta no campo de são Bento, em Niterói. Eu lembro também de quase ter desistido por que eu caía muito e tava meio desestimulado com isso e também por que meu pai não sabia ensinar, não tinha técnica no ensino e também pouca, muito pouca paciência nessa arte.
