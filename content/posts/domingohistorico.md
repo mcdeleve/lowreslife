@@ -4,6 +4,8 @@ draft = false
 title = 'Domingo historico'
 +++
 
+![lula eleito](https://imagens.ebc.com.br/SVelJ3U6maA2Bb1Rg_ieGkXiI2Y=/1170x700/smart/https://agenciabrasil.ebc.com.br/sites/default/files/thumbnails/image/2026/10/24/_int7543.jpg?itok=TvCWu-qS)
+
 Enfim domingo tinha chegado.
 Eu acordei antes do Juan e saí pra buscar um pão aqui na rua de baixo. Minha bicicleta fica no subsolo  qui do condomínio e ao acessar essa parte pela escada eu já encontrei com um dos meus poucos vizinhos que vocalmente votaria em Lula. Eu já o tinha visto no primeiro turno e ele estava com a camisa do Brasil e adesivos do Lula, claramente um soldado do exército (do Lula, né kk). Eu disse ao vê-lo _'Vamos ganhar, se deus quiser!'_ e ele respondeu num misto de alívio e desespero _'Se deus quiser!'_. 
 
