@@ -4,6 +4,7 @@ draft = false
 title = 'Chove muito'
 +++
 
+![chuva](https://static2.klipy.com/ii/35ccce3d852f7995dd2da910f2abd795/a7/a0/b0kW3PgO.gif)
 
 Essa noite choveu a noite todinha. Não lembro de outra noite que choveu assim esse ano. E logo amanhã que teremos eleição. Uma eleição mais importante e complexa que a de 2022. Dessa vez vamos escolher dois senadores e a mudança de conjuntura do parlamento pode vir a ser grande. E mudança, como sabemos, nem sempre é pra melhor. Em política então, a possibilidade de ser pra pior é bem, bem grande. 
 
