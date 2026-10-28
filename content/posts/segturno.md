@@ -4,6 +4,8 @@ draft = false
 title = 'Segundo turno tá foda'
 +++
 
+![seg turno](https://static2.klipy.com/ii/925f17378dd1893b674a723c07535afe/e0/bc/Zz8Jebpg.gif)
+
 Não sei como tá por aí, mas por aqui tá rolando uma ansiedade forte desde o fim do primeiro turno. 
 
 Uma eleição majoritária é uma negócio que mexe comigo, que sou cracudo de política há muitos anos.

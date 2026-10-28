@@ -4,6 +4,8 @@ draft = false
 title = 'Vou te contar um segredo'
 +++
 
+![segredo](https://static2.klipy.com/ii/d7aec6f6f171607374b2065c836f92f4/ca/2c/XF6uW9cd.gif)
+
 Eu não saí contando pra todo mundo mas pra você que me lê aqui eu vou contar. 
 
 Faz uns 3 anos que você me viu rodando no Uber depois que me divorciei. Sim, a situação tava difícil, a gente envelhece, perde relevância, tem filho, normal, faz o que é possível. Eu costumo dizer que a vida adulta é menos fazer o que gosta mas fazer o que precisa (infelizmente). A minha experiência foi abreviada por uma série de motivos incluindo o que me abreviou mais rápido nessa função que foi ser roubado. E como meu carro era alugado, eu fiquei sem carro e com uma dívida pra pagar. Aí não deu. Sem casa, morando de favor em quarto de amigos e sem dinheiro, não tive como alugar outro carro. Tive que me virar sem isso mesmo. Apesar disso, eu fiz vídeos, lives, stories e foi interessante ter feito uma limonada desse limão. Descobri que transformar a vida em reality show é mais o que as pessoas tendem a querer ver na internet do que sua música. Eu que tô na internet há 25+ anos não tinha tanta noção disso. Mas a internet - assim como a gente - muda e a internet que eu comecei já não era a que tínhamos na segunda década do século. Talvez tenha gente assim como você que querem me ler escrevendo umas memórias, mas a maioria quer ver você se expondo na câmera. Sinais dos tempos. O que eu posso fazer? Preciso - e vou - me mostrar na câmera então, né? 
