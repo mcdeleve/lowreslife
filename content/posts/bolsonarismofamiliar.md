@@ -4,6 +4,8 @@ draft = false
 title = 'Bolsonarismo familiar'
 +++
 
+![Descrição da imagem](https://i.ibb.co/R4kwB3Tm/image.png)
+
 Quando meu irmão se tornou bolsonarista em 2018 eu tive muito pouco contato com ele. Nessa época eu tava muito envolvido com as questões do meu filho e já estava afastado da minha família por que eu tive que me mudar pra buscar tratamento adequado pra ele e não estava perto deles. Mas eu soube pela minha sobrinha e minha irmã que ele tinha se radicalizado a ponto de minha sobrinha, afilhada dele, ter deixado de falar com ele nessa época. 
 
 Aquilo me tocou muito por que meu irmão nunca gostou de política, não se informava, não se interessava e foi cooptado logo pela pior política possível, a da mentira bolsonarista e quem é letrado na política como eu saber do que se tratava desde o começo. Ele sabia obviamente que eu gostava e entendia de política mas ele nunca conversou comigo sobre o assunto. Lembro de quando ainda na época que ele dizia não gostar de política eu disse pra ele uma frase que mexeu com a cabeça dele. Eu disse _O problema de não gostar de política é que você vai ser governado por quem gosta_. Nesse momento eu o vi mudar o olhar de mim como que pra si próprio e meio que acendeu uma luz na cabeça dele. 
