@@ -4,6 +4,8 @@ draft = false
 title = 'Semana que não acaba nunca'
 +++
 
+![nervoso](https://static2.klipy.com/ii/c3a19a0b747a76e98651f2b9a3cca5ff/e8/0d/ZmjleVV3.gif)
+
 Eu não sei nem descrever o que foi essa ultima semana antes do segundo turno das eleições 2026 para a majoritária de presidente, já que aqui no Rio o governador foi escolhido já no primeiro turno. 
 
 Foram três semana de pura ansiedade. 
