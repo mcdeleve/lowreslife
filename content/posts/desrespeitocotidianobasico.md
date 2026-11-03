@@ -5,7 +5,7 @@ title = 'Desrespeito cotidiano básico'
 +++
 
 #### Simples e Difícil 
-
+![biekride](https://static2.klipy.com/ii/4e7bea9f7a3371424e6c16ebc93252fe/8c/c7/zZli9rGQ6Ag8d.gif)
 Depois de dois anos de relacionamento eu consegui - enfim- tirar um fim de semana com minha namorada e podemos pela primeira vez fazer um passeio de bicicleta a dois. 
 
 É incrível como coisas simples ficam tão inalcançáveis e o tempo vai passando sem que ~possamos~ consigamos fazê-las. 
