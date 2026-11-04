@@ -4,7 +4,7 @@ draft = false
 title = 'Comer cimento'
 +++
 
-![etbilu](https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Fwww.fatosdesconhecidos.com.br%2Fwp-content%2Fuploads%2F2016%2F03%2Fbilu2.png&f=1&nofb=1&ipt=c9da2f9fdf236f21ab51f90cd0cd8a66c0b8667b640f79863178c29b152e0b6e&ipo=images)
+![etbilu](https://static2.klipy.com/ii/4e7bea9f7a3371424e6c16ebc93252fe/f8/f4/FAVBCjJ9Liy2ewOE5B.gif)![yeah](https://media.tenor.com/iixrKkvsiIUAAAAi/ufo-green.gif)
 
 O E.T. Bilu não poderia estar mais certo quando em 2010, ao ser questionado sobre qual mensagem deixaria para o mundo ele não exitou e disse: _Busquem conhecimento_. 
 
