@@ -4,7 +4,7 @@ draft = false
 title = 'Comer cimento'
 +++
 
-![etbilu](https://static2.klipy.com/ii/4e7bea9f7a3371424e6c16ebc93252fe/f8/f4/FAVBCjJ9Liy2ewOE5B.gif)![yeah](https://media.tenor.com/iixrKkvsiIUAAAAi/ufo-green.gif)
+![yeah](https://media.tenor.com/iixrKkvsiIUAAAAi/ufo-green.gif)
 
 O E.T. Bilu não poderia estar mais certo quando em 2010, ao ser questionado sobre qual mensagem deixaria para o mundo ele não exitou e disse: _Busquem conhecimento_. 
 
