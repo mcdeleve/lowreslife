@@ -24,4 +24,10 @@ Veja, nem seu partido tá concordando com tudo e espalhando as notícias. Primei
 
 Seus aliados - ou ex, não sei ao certo - são pragmáticos demais e não vão ser liderados por um napoleão de coreto, vão disputar essa vaga que agora tá em disputa e não pretendem dar ela de bandeja e segurar até que ele decida voltar, o que é bem improvável. Tirando a meia dúzia de doidinhos que se elegeram somente às custas dele, ainda vai ter um chororô grande e persistente. Pra turma que faz política é deixar a poeira baixar e ocupar, aos poucos, esse lugar vago. 
 
-Eu queria muito que o E.T. Bilu aparecesse de novo, dessa vez, quem sabe, na cobertura do canal da Revista Oeste no Youtube e passasse o recado atualizado para o público dizendo: <mark> _Busquem comer cimento!_ </mark> 
+Eu queria muito que o E.T. Bilu aparecesse de novo, dessa vez, quem sabe, na cobertura do canal da Revista Oeste no Youtube e passasse o recado atualizado para o público dizendo: <mark> _Busquem comer cimento!_ </mark> por que é literalmente o que fazn o público desse tipo de conteúdo. 
+
+Eh muito engraçado ver o irmão foragido do candidato ficar chorando as pitangas na internet dizendo que a eleição foi fraudada. Ele mesmo fez uma live e vendeu ingresso com a certeza de que ganhariam. Como não aconteceu, começaram com o mi-mi-mi já conhecido e a choradeira de maus perdedores que são. 
+
+_Vídeo ilustrativo da sandice genralizada E MONETIZADA dos canais que alimentam os trolls_ 
+
+<iframe width="560" height="315" src="https://www.youtube-nocookie.com/embed/CijUf--i0kg?si=bItHscu2nqcYt_Sl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
