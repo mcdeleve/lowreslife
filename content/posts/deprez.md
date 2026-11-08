@@ -4,21 +4,17 @@ draft = false
 title = 'Internet e estado mental'
 +++
 
-~Ontem foi um daqueles dias em que não dá vontade de fazer nada. 
+~Ontem foi um daqueles dias em que não dá vontade de fazer nada.~
+~Como eu no meu dia não posso fazer nada por que tem coisa pra fazer, eu só fiz o básico, que tá longe de ser nada, mas é bem menos do que eu faço num dia comum.~
+~Meu filho estava molhado de xixi na cama antes de acordar. Quando acordou tava mais molhado ainda. Acho que fez uma segunda vez na cama e acordou fazendo. Tava tudo molhado, muito molhado. Ele pisava e andava pela casa molhando e espalhando mais. Botei pro banho e deixei ele embaixo do chuveiro enquanto eu limpava o protetor de colhão e tirava tudo pra lavar.~
+~Banho dado, quarto limpo. Deixei a janela aberta pra circular o ar por que o cheiro de xixi tava muito forte.~
+~Aí, é aquilo, fiz só o que tava no script:~
 
-Como eu no meu dia não posso fazer nada por que tem coisa pra fazer, eu só fiz o básico, que tá longe de ser nada, mas é bem menos do que eu faço num dia comum. 
+~X banho~
+~X café da manhã~
+~X almoço pro meu filho~
 
-Meu filho estava molhado de xixi na cama antes de acordar. Quando acordou tava mais molhado ainda. Acho que fez uma segunda vez na cama e acordou fazendo. Tava tudo molhado, muito molhado. Ele pisava e andava pela casa molhando e espalhando mais. Botei pro banho e deixei ele embaixo do chuveiro enquanto eu limpava o protetor de colhão e tirava tudo pra lavar.
-
-Banho dado, quarto limpo. Deixei a janela aberta pra circular o ar por que o cheiro de xixi tava muito forte.
-
-Aí, é aquilo, fiz só o que tava no script:
-
-X banho
-X café da manhã
-X almoço pro meu filho 
-
-Quando ele sai up escola eu já tinha almoçado, meio que almocei junto com ele, às 11h, depois disso eu fiquei no scroll infinito na cama e dormi ao meio dia mais ou menos. Acordei às 15h. Nem levantei da cama. Vontade zero. Quando deu 16h eu precisava comprar umas coisas pra ele voltar e comer por que já tava _sem nada_.~
+~Quando ele sai up escola eu já tinha almoçado, meio que almocei junto com ele, às 11h, depois disso eu fiquei no scroll infinito na cama e dormi ao meio dia mais ou menos. Acordei às 15h. Nem levantei da cama. Vontade zero. Quando deu 16h eu precisava comprar umas coisas pra ele voltar e comer por que já tava _sem nada_.~
 
 ![nett](https://media1.tenor.com/m/rFd3bfiYRBMAAAAC/wlan.gif)
 
