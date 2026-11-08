@@ -20,6 +20,8 @@ X almoço pro meu filho
 
 Quando ele sai up escola eu já tinha almoçado, meio que almocei junto com ele, às 11h, depois disso eu fiquei no scroll infinito na cama e dormi ao meio dia mais ou menos. Acordei às 15h. Nem levantei da cama. Vontade zero. Quando deu 16h eu precisava comprar umas coisas pra ele voltar e comer por que já tava _sem nada_.~
 
+![nett](https://media1.tenor.com/m/rFd3bfiYRBMAAAAC/wlan.gif)
+
 Ah, sei lá, desisti de escrever sobre isso. 
 
 Foram sim alguns dias nada bem, mas tudo normal também. 
