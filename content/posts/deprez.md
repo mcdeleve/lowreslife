@@ -1,7 +1,7 @@
 +++
 date = '2026-11-06T06:06:40-03:00'
 draft = false
-title = 'Deprez'
+title = 'Internet e estado mental'
 +++
 
 ~Ontem foi um daqueles dias em que não dá vontade de fazer nada. 
