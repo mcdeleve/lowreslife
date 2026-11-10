@@ -4,8 +4,6 @@ draft = false
 title = 'No meio de tudo'
 +++
 
-![mapa](https://i.ibb.co/mCsHHh7q/Screenshot-2026-11-10-at-17-49-40-de-Av-Mal-Rondon-2822-Engenho-Novo-a-Av-Mal-Rondon-2822-En.png)
-
 Parece que eu moro no centro das distâncias. No meio de tudo. 
 
 Ontem precisei ir na Tijuca, numa agência bancária pra regularizar o benefício de prestação continuada do meu filho que eu estou há quase dois meses sem conseguir fazer o saque por que o cartão venceu e não consigo sacar sem ele. Enfim. Fui até lá, de bicicleta, claro, e a agência não existia mais. 
