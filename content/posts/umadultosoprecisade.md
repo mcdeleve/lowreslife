@@ -9,10 +9,15 @@ title = 'Um adulto só precisa de...'
 Um adulto só precisa de 
 
 ~4 carros de luxo na garagem~
+
 ~apartamento de 3 milhões~
+
 ~perfil do instagram com 4 milhões de seguidores~
+
 ~cordão de 24 quilates e 2 kg de ouro~
+
 ~banheiro com banheira~ sei lá, queria esse hein rs 
+
 ~jóias~
 
 ✅ Louça limpa
