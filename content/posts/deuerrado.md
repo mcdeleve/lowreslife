@@ -1,7 +1,7 @@
 +++
 date = '2026-11-11T05:06:18-03:00'
 draft = false
-title = 'Deuerrado'
+title = 'Parece que não deu muito certo'
 +++
 
 ![vinil](https://static2.klipy.com/ii/d7aec6f6f171607374b2065c836f92f4/4e/52/DzqI4dmc.gif)
@@ -23,7 +23,7 @@ Hoje eu vejo o hype e a nova geração colecionando e dando pouca importância �
 
 Uma vez eu saí com uma DJ de São Paulo e ela era nova nisso de coleção de discos de vinil, cerca de uns 3 anos. 
 
-Mas ela era de outra área e bem influente, o que a fez estar bem conceituada como DJ (sem São Paulo) em pouco tempo, sendo DJ sem ser DJ mesmo, o que hoje é algo bem comum, basta você ter ~conhecimento~ uns vinis. 
+Mas ela era de outra área e bem influente, o que a fez estar bem conceituada como DJ (sem São Paulo) em pouco tempo, sendo DJ sem ser DJ mesmo, o que hoje é algo bem comum, basta você ter ~conhecimento e amigos influentes~ uns vinis. 
 
 A "coleção" dela era bem modesta mas interessante. Ela queria muito me mostrar os discos e depois de dois dias na casa dela ela já tava agoniada que em memento nenhum eu mexi nos toca discos dela. Até que ela falou _"Escolhe um disco pra ouvir"_. Eu nem tava com vontade com ouvir nada, mas aí eu tive que mexer na coleção dela e puxei um _Emílio Santiago_ que nunca tinha ouvido. O disco era legal, anos 80, bem eletrônico e moderno, um _Emílio Santiago_ que eu não peguei em vida, o que me lembro dele quando criança era sua fase mais madura e romântica, não peguei sua fase mais jovem e experimental e foi bem interessante. 
 
