@@ -27,3 +27,4 @@ Um adulto só precisa de
 ✅ Banheiro cheiroso
 ✅ Roupa limpa e dobrada
 ✅ Salário em dia
+✅ Paz
