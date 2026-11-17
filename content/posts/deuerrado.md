@@ -33,6 +33,8 @@ Mas o mal estar dela em eu não ter tido interesse na coleção dela foi algo mu
 
 ### idade
 
+![velho](https://static2.klipy.com/ii/4493325008d34b7bf8cd6813cd5c1619/e2/d1/OcA5VmxugGCpZu.gif)
+
 Hoje eu sinto que eu tô tão velho e desatualizado que vejo qualquer menor de 18 anos e sinto que eels são tão melhores que eu num nível que ia deveria não mais fazer isso que faço. 
 
 E apesar de saber que a cena e o nível deles passa por mim e pela minha geração, que transformou o modo de se fazer rap hoje em dia, vejo que nada disso tem valor, assim como ninguém valoriza Arthur Friedenreich por ter revolucionado o futebol brasileiro. Ninguém conhece, ninguém se importa. 
