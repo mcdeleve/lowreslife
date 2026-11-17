@@ -18,6 +18,11 @@ Mas nem sempre, mesmo sabendo disso, a gente quer mudar. Mudança é cansativo, 
 Tem que encaixotar, rever, guardar, carregar, transportar. É transtorno. Não é cômodo. 
 
 Conta a história que o disco Arthur Verocai, lançado em 1972, foi um estrondoso fracasso. Graças ao hiphop ele teve seu valor reconhecido quase quarenta anos depois. 
+
+Hoje esse disco é celebrado pela imprensa, pela crítica e pelos músicos. 
+
+Mas nada disso teria acontecido se não fosse o hiphop, os DJs, os beatmakers. Há de se reconhecer muito isso. Não é pouco  não. É muito. Por que essa valorização desse álbum tem mal uns 15 anos. Antes disso era lixo. Ninguém conhecia, ninguém queria, ninguém se importava. Desse jeito. Daquele jeitão BR que conhecemos bem. 
+
 O colecionismo e apreciação de música antiga e discos de vinil no rap é muito antiga. 
 Hoje eu vejo o hype e a nova geração colecionando e dando pouca importância à história e ao por que deles estarem colecionando discos antigos de vinil. Mano, tu só faz isso por conta do hiphop, não fosse ele, tu tava no spotify. 
 
