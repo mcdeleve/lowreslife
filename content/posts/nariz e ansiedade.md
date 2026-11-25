@@ -6,7 +6,7 @@ title = 'Nariz E Ansiedade'
 
 ![materia de jornal](https://i.ibb.co/LdrFJPt1/Screenshot-2026-11-25-at-07-04-25-O-GLOBO-Confira-as-principais-not-cias-do-Brasil-e-do-mundo.png)
 
-É verdade. Eu tenho alguns amigos que estão ansiosos e a relação é mesmo bem direta. 
+É verdade. Eu tenho alguns amigos com nariz ansioso e a relação é mesmo bem direta. 
 
 Se é que vocês me entendem. 
 
