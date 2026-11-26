@@ -64,3 +64,5 @@ Certamente teremos um museu Gilberto Gil, uma arena, uma escola. Caetano também
 Anitta terá sua lona cultural em Marechal Hermes ou Bento Ribeiro, seu bairro de criação. Talvez será nome de rua. Talvez. É bem provável que sim. Raul seixas é nome de rua na regiãao dos lagos no RJ, acho que em Unamar ou Rio das Ostras ou Cabo Frio, não lembro bem. 
 
 Todos colecionaram sucessos e podem muito facilmente terminar esquecidos. E provavelmente isso vai acontecer. O mercado é implacável e novo sempre vem. Mas não para lima. Não para Machado. Enquanto houver Brasil, haverá Machado. E quem não quer ser Machado, alguém que viveu fama em vida e em morte ? Eu queria também. Mas vou me relegar a minha pequena insignificância. A mim só resta o _pós mortem_. E mesmo essa possibilidade é remota. Enfim, é a vida. 
+
+![machado ironico](https://static2.klipy.com/ii/4493325008d34b7bf8cd6813cd5c1619/69/f3/9epeuiUeMGvhsMXWBVF.gif)
