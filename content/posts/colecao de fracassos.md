@@ -50,3 +50,5 @@ Lima Barreto foi um deles. Viveu pouco, viveu mal, adoeceu, empobreceu, foi esca
 A vida é essa maluquice. 
 
 Uns a experimentam de uma maneira a ser celebrada. Outros de modo a ser lamentada tamanho o sofrimento. E aí, tem o pós morte. Aquilo que o morto nunca saberá o que acontecerá. Em geral, nada acontece mesmo. Mas e se acontecer ? Vale a pena viver uma vida miserável em favor de uma história celebrada já sem você estar presente ? 
+
+![ned e barreto](https://i.ibb.co/h1hTKMP3/image.png)
