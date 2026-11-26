@@ -1,7 +1,7 @@
 +++
 date = '2026-11-26T05:25:21-03:00'
 draft = false
-title = 'Colecao De Fracassos'
+title = 'Coleção De Fracassos'
 +++
 
 ![ned](https://i.ibb.co/G4RvwLpw/Captura-de-tela-2026-11-26-06-20-38.png)
