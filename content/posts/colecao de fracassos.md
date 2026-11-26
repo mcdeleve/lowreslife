@@ -52,3 +52,15 @@ A vida é essa maluquice.
 Uns a experimentam de uma maneira a ser celebrada. Outros de modo a ser lamentada tamanho o sofrimento. E aí, tem o pós morte. Aquilo que o morto nunca saberá o que acontecerá. Em geral, nada acontece mesmo. Mas e se acontecer ? Vale a pena viver uma vida miserável em favor de uma história celebrada já sem você estar presente ? 
 
 ![ned e barreto](https://i.ibb.co/h1hTKMP3/image.png)
+
+O que será de nomes como Jorge Benjor, Gil e Caetano daqui a 50 anos ? Esquecidos ? Celebrados ? E Anitta ? Eu sempre gostei de fazer o paralelo entre Anitta e Cármen Miranda. Vejo muita semelhança nelas. Sempre vi. Muito antes dela própria se utilizar de Carmém como referência e homenagem há pouco tempo atrás. 
+
+Carmen foi sucesso internacional muito mais que Ned. Fez filmes de sucesso estrelados por estrelas róliudianas e viveu, assim como Anitta, na América do Norte, ganhando fortunas em dólar. 
+
+Miranda tem seu museu no bairro do Flamengo, no RJ. Ninguém o frequenta. Eu mesmo, que gosto da trajetória dela e já li uma biografia da mesma nunca nem fui, apesar do interesse. Pelo tamanho que ela teve em vida, era pra ser mais grandioso, mas parafraseando nosso personagem do dia, eu diria que _Tudo passa, tudo passará_. 
+
+Certamente teremos um museu Gilberto Gil, uma arena, uma escola. Caetano também será algo mais do que apenas nome de filho de casal modernoso em Laranjeiras. Até os Caetanos hoje já têm seus quinze anos. Essa fase inclusive já passou e tá tendo um revival do pessoal que foi pro segundo casamento depois do ~primeiro~ divórcio. 
+
+Anitta terá sua lona cultural em Marechal Hermes ou Bento Ribeiro, seu bairro de criação. Talvez será nome de rua. Talvez. É bem provável que sim. Raul seixas é nome de rua na regiãao dos lagos no RJ, acho que em Unamar ou Rio das Ostras ou Cabo Frio, não lembro bem. 
+
+Todos colecionaram sucessos e podem muito facilmente terminar esquecidos. E provavelmente isso vai acontecer. O mercado é implacável e novo sempre vem. Mas não para lima. Não para Machado. Enquanto houver Brasil, haverá Machado. E quem não quer ser Machado, alguém que viveu fama em vida e em morte ? Eu queria também. Mas vou me relegar a minha pequena insignificância. A mim só resta o _pós mortem_. E mesmo essa possibilidade é remota. Enfim, é a vida. 
