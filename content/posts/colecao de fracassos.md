@@ -53,7 +53,7 @@ Uns a experimentam de uma maneira a ser celebrada. Outros de modo a ser lamentad
 
 ![ned e barreto](https://i.ibb.co/h1hTKMP3/image.png)
 
-O que será de nomes como Jorge Benjor, Gil e Caetano daqui a 50 anos ? Esquecidos ? Celebrados ? E Anitta ? Eu sempre gostei de fazer o paralelo entre Anitta e Cármen Miranda. Vejo muita semelhança nelas. Sempre vi. Muito antes dela própria se utilizar de Carmém como referência e homenagem há pouco tempo atrás. 
+O que será de nomes como Jorge Benjor, Gil e Caetano daqui a 50 anos ? Esquecidos ? Celebrados ? E Anitta ? Eu sempre gostei de fazer o paralelo entre Anitta e Cármen Miranda. Vejo muita semelhança nelas. Sempre vi. [Muito antes dela própria se utilizar de Carmém como referência e homenagem há pouco tempo atrás.](https://radiomixfm.com.br/wp-content/uploads/2025/12/anitta-carmen-miranda.jpg) 
 
 Carmen foi sucesso internacional muito mais que Ned. Fez filmes de sucesso estrelados por estrelas róliudianas e viveu, assim como Anitta, na América do Norte, ganhando fortunas em dólar. 
 
