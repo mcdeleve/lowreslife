@@ -57,7 +57,7 @@ O que será de nomes como Jorge Benjor, Gil e Caetano daqui a 50 anos ? Esquecid
 
 Carmen foi sucesso internacional muito mais que Ned. Fez filmes de sucesso estrelados por estrelas róliudianas e viveu, assim como Anitta, na América do Norte, ganhando fortunas em dólar. 
 
-Miranda tem seu museu no bairro do Flamengo, no RJ. Ninguém o frequenta. Eu mesmo, que gosto da trajetória dela e já li uma biografia da mesma nunca nem fui, apesar do interesse. Pelo tamanho que ela teve em vida, era pra ser mais grandioso, mas parafraseando nosso personagem do dia, eu diria que _Tudo passa, tudo passará_. 
+Miranda tem seu museu no bairro do Flamengo, no RJ. Ninguém o frequenta. Eu mesmo, que gosto da trajetória dela e [já li uma biografia da mesma](https://libgen.vg/get.php?md5=40fae7d22c16d8a141d7eb5d98dfbee8&key=8AT9EGDC6ZDHIIKB) nunca nem fui, apesar do interesse. Pelo tamanho que ela teve em vida, era pra ser mais grandioso, mas parafraseando nosso personagem do dia, eu diria que _Tudo passa, tudo passará_. 
 
 Certamente teremos um museu Gilberto Gil, uma arena, uma escola. Caetano também será algo mais do que apenas nome de filho de casal modernoso em Laranjeiras. Até os Caetanos hoje já têm seus quinze anos. Essa fase inclusive já passou e tá tendo um revival do pessoal que foi pro segundo casamento depois do ~primeiro~ divórcio. 
 
