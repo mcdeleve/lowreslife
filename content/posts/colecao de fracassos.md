@@ -4,6 +4,8 @@ draft = false
 title = 'Colecao De Fracassos'
 +++
 
+![ned](https://i.ibb.co/G4RvwLpw/Captura-de-tela-2026-11-26-06-20-38.png)
+
 Eu tenho sido bom em colecionar fracassos. 
 Não chega a ser fracassos públicos e homéricos, mas ainda assim são fracassos. 
 Pensando bem, nem em fracassar eu sou tão bom assim. Poderia ser melhor. 
